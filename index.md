@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Welcome to Wesley Valdes's Page
 
-I'm glad you are here. I plan to talk about ...
+I'm glad you are here. Here is my CV
